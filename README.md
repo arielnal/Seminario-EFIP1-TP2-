@@ -1,1 +1,1 @@
-no me deja subir el video por pesar más de 25 MB
+gracias a la recomendación del profe Pablo, pude subir el video grabando con OBS
